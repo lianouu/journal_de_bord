@@ -16,7 +16,7 @@ Nommez deux emplois.
 
 ### Identification
 Nommez une entreprise et un artiste auxquels vous vous identifiez et expliquez pourquoi. 
-Behaviour est une excellente entreprise de jeux vidéo. Elle fait des jeux que j'adore et c'est la même chose pour le grand publique. Je m'identifie à cette entreprise car quand il y avait une ambiance très joyeuse qui me donne envie de travailler. La place est permet aussi à des entreprises qui ne sont pas dans le jeux vidéo de bénéficier du savoir-faire des développeurs.euses de jeu.
+Behaviour est une excellente entreprise de jeux vidéo. Elle fait des jeux que j'adore et c'est la même chose pour le grand publique. Je m'identifie à cette entreprise car il y a une ambiance très joyeuse qui me donne envie de travailler. La placepermet aussi à des entreprises qui ne sont pas dans le jeux vidéo de bénéficier du savoir-faire des développeurs.euses de jeu.
 L'artiste que je m'identifie est Joyca car il adore la musique depuis son plus jeune âge. Il est créatif et ambitieux
 
 ### Dans 5 ans
