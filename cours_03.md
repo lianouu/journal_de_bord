@@ -25,4 +25,4 @@ Dans 5 ans je me vois sur le marché du travail à la campagne. Je me vois avec 
 
 ### Projets
 Expliquez un ou des projets que vous aimeriez faire.  
-J'aimerai participé à un jeu vidéo aventure sur le thème d'une jeune femme qui cherche ses enfants et sa femme dans différent rêve. En gros, c'est une famille qui peut voyager dans les rêves et les améliorer. Tout à coup, une des déesses des rêves arrivent à les arrêter mais en s'affrontant. rendu à la fin du combat la déesse kidnappe la famille de la jeune femme. Donc sa mission est de retrouver les êtres qu'elle chérie. 
+J'aimerai participé à un jeu vidéo aventure sur le thème d'une jeune femme qui cherche ses deux enfants et sa femme dans différent rêve. En gros, c'est une famille qui peut voyager dans les rêves et les améliorer. Tout à coup, une des déesses des rêves arrivent à les arrêter mais en s'affrontant la déesse kidnappe la famille de la jeune femme. Donc sa mission est de retrouver les êtres qu'elle chérie. 
