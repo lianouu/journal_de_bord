@@ -1,6 +1,6 @@
 # Cours 5
 ## Rétrospective de la présentation 1
-
+Je n'ai pas fait la présentation
 ### Points forts
 Nommer deux points forts de votre présentation. 
 
